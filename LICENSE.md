@@ -1,4 +1,4 @@
-# 
+# custom bot de negociação OKX executor é o melhor bot de negociação OKX executor com margem cruzada e monitoramento de preços. Seguro, confiável e otimizado para estratégias de
 
 
 
